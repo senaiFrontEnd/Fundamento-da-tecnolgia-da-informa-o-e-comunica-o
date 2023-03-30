@@ -1,1 +1,1 @@
-# Fundamento-da-tecnolgia-da-informa-o-e-comunição
+# Fundamento-da-tecnolgia-da-informação-e-comunição
